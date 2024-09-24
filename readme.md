@@ -13,6 +13,6 @@ kolko kamenov mnisi prekladaju...
 Nas tim tvoria clenovia:
 
 1. Juraj Povinec
-2.
+2. Nikolas Gubančok
 3.
 4.
