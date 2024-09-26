@@ -15,4 +15,4 @@ Nas tim tvoria clenovia:
 1. Juraj Povinec
 2. Nikolas Gubančok
 3. Mária Cerulíková
-4.
+4. Lea Michalíková
